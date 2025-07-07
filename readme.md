@@ -1,1 +1,1 @@
-Olá pessoal, bem-vindos aos meu currículo
+Olá pessoal, bem-vindos aos meu curriculo
